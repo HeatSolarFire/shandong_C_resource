@@ -1,0 +1,1 @@
+# shandong_C_resource
